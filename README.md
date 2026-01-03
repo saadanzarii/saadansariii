@@ -9,8 +9,8 @@
 
 ### 📫 How to reach me:
 - **Email:** hashtagg.saad@gmail.com  
-- **Twitter:** [@itzsaadansarii](https://twitter.com/itzsaadansarii)  
-- **Instagram:** [@itzsaadansarii](https://instagram.com/itzsaadansarii)  
+- **Twitter:** [@itzsaadansarii](https://twitter.com/saadanzari)  
+- **Instagram:** [@itzsaadansarii](https://instagram.com/saadanzari)  
 
 ---
 
